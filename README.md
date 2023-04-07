@@ -1,6 +1,4 @@
-# youtubers
-给墙内新手的油管推荐列表
-
+大部分刚翻墙的出来的人可能对油管有些陌生，不知道哪些频道比较值得订阅，这个列表的目的就是给大家推荐优秀的华语油管频道
 
 ### 时政
 万维TV https://www.youtube.com/@wanweitv
@@ -12,8 +10,6 @@
 新聞最嘲點 - Mr.姜光宇 https://www.youtube.com/@MrFunnyNewsJGY 
 
 王剑每日观察Kim's Observation  https://www.youtube.com/@wongkim728
-
-新聞拍案驚奇 - 大宇 https://www.youtube.com/@DayuShow
 
 小翠時政財經 https://www.youtube.com/@cui_news
 
