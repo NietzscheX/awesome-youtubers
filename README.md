@@ -5,6 +5,8 @@
 ## 为什么要做这个列表
 大部分刚翻墙的出来的人可能对油管有些陌生，不知道哪些频道比较值得订阅，这个列表的目的就是给大家推荐优秀的华语油管频道。油管是非常不错信息获取平台，和国内不同的是油管的言论管控要松很多（所谓的言论自由），所以直播主可以表达的内容也多。
 
+华语油管主主要来自于中国大陆、台湾、香港、马来西亚。
+
 ### 时政
 
 万维TV https://www.youtube.com/@wanweitv
@@ -84,5 +86,21 @@ Sunnyyy Travel https://www.youtube.com/@SunnyyyTravel
 
 She's Danni https://www.youtube.com/@ShesDanni 
 
+#### 日本
 
+李小牧看日本-歌舞伎町案內人 https://www.youtube.com/@leekomaki 
+
+小鄭在日本 https://www.youtube.com/@realxiaozheng 
+
+纳豆奶奶 https://www.youtube.com/@nadounainai 
+
+三原JAPAN Sanyuan_JAPAN https://www.youtube.com/@SanyuanJAPAN2015 
+
+日本太太PangMama / 加藤彩子 https://www.youtube.com/@pangmama57 
+
+### 宗教
+
+無有淺談 https://www.youtube.com/@supu929 
+
+中国鬼怪排行榜 https://www.youtube.com/@user-xi4jp5tz6w
 
