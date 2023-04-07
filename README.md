@@ -104,3 +104,26 @@ She's Danni https://www.youtube.com/@ShesDanni
 
 中国鬼怪排行榜 https://www.youtube.com/@user-xi4jp5tz6w
 
+### 语言学习
+
+Teacher Mike 麦克老师 https://www.youtube.com/@maikelaoshi
+
+Langfocus https://www.youtube.com/@Langfocus 
+
+Speak Ukrainian https://www.youtube.com/@SpeakUkrainian
+
+### 美食
+觅食Meetfood https://www.youtube.com/@MeetFoodTour
+
+### 电影快看
+
+科幻FANS https://www.youtube.com/@kehuanbuma 
+
+瞎鸡二看 https://www.youtube.com/@xiaji2kan 
+
+穷电影 https://www.youtube.com/@qiongdianying
+
+超粒方 https://www.youtube.com/@tessereq
+
+魔女嘉尔 https://www.youtube.com/@Jiaer01
+
