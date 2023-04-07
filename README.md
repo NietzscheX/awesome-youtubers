@@ -6,6 +6,7 @@
 大部分刚翻墙的出来的人可能对油管有些陌生，不知道哪些频道比较值得订阅，这个列表的目的就是给大家推荐优秀的华语油管频道。油管是非常不错信息获取平台，和国内不同的是油管的言论管控要松很多（所谓的言论自由），所以直播主可以表达的内容也多。
 
 ### 时政
+
 万维TV https://www.youtube.com/@wanweitv
 
 關鍵時刻 https://www.youtube.com/@ebcCTime 
@@ -43,8 +44,45 @@ PanSci Taiwan - https://www.youtube.com/@PanScitw
 Cheap 最真实的历史 - https://www.youtube.com/@cheapaoe
 
 ### 财经
+
 澳洲Henry https://www.youtube.com/@Henry-bg4mp 
 
 小Lin说 https://www.youtube.com/@xiao_lin_shuo
 
 小翠時政財經 https://www.youtube.com/@cui_news 
+
+### 生活移民
+Thomas阿福 https://www.youtube.com/@ThomasAfu
+
+Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505 
+
+Jixian Wang 我是王吉贤 https://www.youtube.com/@hellojixian 
+
+#### 悉尼
+悉尼女乃爸 Sydney DaDDy 雪梨女乃爸 https://www.youtube.com/@SydneyDaddy1 
+
+#### 加拿大
+
+56BelowTV 零下56 https://www.youtube.com/@56BelowTV 
+
+刀刀-canada https://www.youtube.com/@daodao-ca 
+
+#### 美国
+Mike是麦克 https://www.youtube.com/@mike1111 
+
+移民访谈录 https://www.youtube.com/@xusiduo
+
+Bruce房车走遍美国 https://www.youtube.com/@liangluejia123 
+
+上海人家在美国 https://www.youtube.com/@SHfamilyinUS 
+
+洛奇Rocky https://www.youtube.com/@Rocky1108
+
+方偉時間 https://www.youtube.com/@FangWeiTime 
+
+Sunnyyy Travel https://www.youtube.com/@SunnyyyTravel 
+
+She's Danni https://www.youtube.com/@ShesDanni 
+
+
+
