@@ -1,4 +1,9 @@
-大部分刚翻墙的出来的人可能对油管有些陌生，不知道哪些频道比较值得订阅，这个列表的目的就是给大家推荐优秀的华语油管频道
+## Youtube简介
+
+美国Google旗下的影片分享网站，是目前全球最大的影片搜寻和分享平台，允许使用者上传、观看、分享及评论影片。它也是国内网站竞相抄袭的对象，比如youku、biblili都希望成为中国的youtube。
+
+## 为什么要做这个列表
+大部分刚翻墙的出来的人可能对油管有些陌生，不知道哪些频道比较值得订阅，这个列表的目的就是给大家推荐优秀的华语油管频道。油管是非常不错信息获取平台，和国内不同的是油管的言论管控要松很多，所以直播主可以表达的内容也是百花齐放的状态。
 
 ### 时政
 万维TV https://www.youtube.com/@wanweitv
@@ -37,4 +42,9 @@ PanSci Taiwan - https://www.youtube.com/@PanScitw
 
 Cheap 最真实的历史 - https://www.youtube.com/@cheapaoe
 
+### 财经
+澳洲Henry https://www.youtube.com/@Henry-bg4mp 
 
+小Lin说 https://www.youtube.com/@xiao_lin_shuo
+
+小翠時政財經 https://www.youtube.com/@cui_news 
