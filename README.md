@@ -56,11 +56,18 @@ Cheap 最真实的历史 - https://www.youtube.com/@cheapaoe
 ### 生活移民
 Thomas阿福 https://www.youtube.com/@ThomasAfu
 
-Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505 
-
 Jixian Wang 我是王吉贤 https://www.youtube.com/@hellojixian 
 
+Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505 
+
+#### 台湾
+
+波特王好帥 https://www.youtube.com/@Realpotterking
+
+攝徒日記Fun TV https://www.youtube.com/@funtv8964 
+
 #### 悉尼
+
 悉尼女乃爸 Sydney DaDDy 雪梨女乃爸 https://www.youtube.com/@SydneyDaddy1 
 
 #### 加拿大
@@ -69,7 +76,10 @@ Jixian Wang 我是王吉贤 https://www.youtube.com/@hellojixian
 
 刀刀-canada https://www.youtube.com/@daodao-ca 
 
+薇羽看世間 https://www.youtube.com/@weiyuksj
+
 #### 美国
+
 Mike是麦克 https://www.youtube.com/@mike1111 
 
 移民访谈录 https://www.youtube.com/@xusiduo
@@ -98,6 +108,22 @@ She's Danni https://www.youtube.com/@ShesDanni
 
 日本太太PangMama / 加藤彩子 https://www.youtube.com/@pangmama57 
 
+### 歌手
+
+周杰倫 Jay Chou https://www.youtube.com/@jaychou/
+
+JJ Lin林俊傑 https://www.youtube.com/@jjlin/
+
+Priscilla Abby 蔡恩雨 - https://www.youtube.com/@PriscillaAbby
+
+Namewee 黄明志 https://www.youtube.com/channel/UCFUtqTcgJgRnmZ3tMU6P74Q 
+
+Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505
+
+Joyce Chu 四葉草 https://www.youtube.com/@theCLOVERJOYCE
+
+GEM鄧紫棋 https://www.youtube.com/@gem0816
+
 ### 宗教
 
 無有淺談 https://www.youtube.com/@supu929 
@@ -108,9 +134,7 @@ She's Danni https://www.youtube.com/@ShesDanni
 
 Teacher Mike 麦克老师 https://www.youtube.com/@maikelaoshi
 
-Langfocus https://www.youtube.com/@Langfocus 
-
-Speak Ukrainian https://www.youtube.com/@SpeakUkrainian
+Peggy Fo Show https://www.youtube.com/@peggyfoshow
 
 ### 美食
 觅食Meetfood https://www.youtube.com/@MeetFoodTour
@@ -129,7 +153,16 @@ Speak Ukrainian https://www.youtube.com/@SpeakUkrainian
 
 ### 脱口秀/综艺
 
-Bailingguo News https://www.youtube.com/@bailingguo 
+百靈果 News https://www.youtube.com/@bailingguo 
 
 正妹老司機 https://www.youtube.com/@beautydriver
 
+黑男邱比特 https://www.youtube.com/@blackmancupid
+
+### 知名人物
+
+崔永元 https://www.youtube.com/@user-ur4kb7pc8k
+
+王志安 https://www.youtube.com/@wangzhian 
+
+蔡英文 https://www.youtube.com/@ingwen831
