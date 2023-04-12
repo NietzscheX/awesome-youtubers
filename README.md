@@ -96,6 +96,8 @@ Bruce房车走遍美国 https://www.youtube.com/@liangluejia123
 
 方偉時間 https://www.youtube.com/@FangWeiTime 
 
+艳清一家在美国 https://www.youtube.com/@qing1987
+
 Sunnyyy Travel https://www.youtube.com/@SunnyyyTravel 
 
 She's Danni https://www.youtube.com/@ShesDanni 
