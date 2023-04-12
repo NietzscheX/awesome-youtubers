@@ -29,7 +29,6 @@
 
 美国之音中文网 https://www.youtube.com/@voachinese
 
-
 ### 科普/历史
 自说自话的总裁 https://www.youtube.com/@STBoss
 
@@ -54,11 +53,18 @@ Cheap 最真实的历史 - https://www.youtube.com/@cheapaoe
 小翠時政財經 https://www.youtube.com/@cui_news 
 
 ### 生活移民
-Thomas阿福 https://www.youtube.com/@ThomasAfu
 
 Jixian Wang 我是王吉贤 https://www.youtube.com/@hellojixian 
 
 Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505 
+
+stone记 https://www.youtube.com/@stone_ji
+
+### 德国
+
+Thomas阿福 https://www.youtube.com/@ThomasAfu
+
+老雷 德国自干五 https://www.youtube.com/watch?v=YEz402uAPes
 
 #### 台湾
 
@@ -68,7 +74,7 @@ Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505
 
 #### 悉尼
 
-悉尼女乃爸 Sydney DaDDy 雪梨女乃爸 https://www.youtube.com/@SydneyDaddy1 
+悉尼奶爸 Sydney DaDDy https://www.youtube.com/@SydneyDaddy1 
 
 #### 加拿大
 
@@ -86,8 +92,6 @@ Mike是麦克 https://www.youtube.com/@mike1111
 
 Bruce房车走遍美国 https://www.youtube.com/@liangluejia123 
 
-上海人家在美国 https://www.youtube.com/@SHfamilyinUS 
-
 洛奇Rocky https://www.youtube.com/@Rocky1108
 
 方偉時間 https://www.youtube.com/@FangWeiTime 
@@ -95,6 +99,8 @@ Bruce房车走遍美国 https://www.youtube.com/@liangluejia123
 Sunnyyy Travel https://www.youtube.com/@SunnyyyTravel 
 
 She's Danni https://www.youtube.com/@ShesDanni 
+
+上海人家在美国 https://www.youtube.com/@SHfamilyinUS 
 
 #### 日本
 
