@@ -44,6 +44,10 @@ PanSci Taiwan - https://www.youtube.com/@PanScitw
 
 Cheap 最真实的历史 - https://www.youtube.com/@cheapaoe
 
+阿淇博士 Dr. Achi - https://www.youtube.com/@HiThisIsAchi
+
+老高與小茉 Mr & Mrs Gao - https://www.youtube.com/@laogao
+
 ### 财经
 
 澳洲Henry https://www.youtube.com/@Henry-bg4mp 
@@ -58,7 +62,9 @@ Jixian Wang 我是王吉贤 https://www.youtube.com/@hellojixian
 
 Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505 
 
-stone记 https://www.youtube.com/@stone_ji
+stone记 - https://www.youtube.com/@stone_ji
+
+錫蘭Ceylan - https://www.youtube.com/@xilanceylan
 
 ### 德国
 
@@ -142,7 +148,9 @@ GEM鄧紫棋 https://www.youtube.com/@gem0816
 
 Teacher Mike 麦克老师 https://www.youtube.com/@maikelaoshi
 
-Peggy Fo Show https://www.youtube.com/@peggyfoshow
+Peggy Fo Show - https://www.youtube.com/@peggyfoshow
+
+Zoe.languages - https://www.youtube.com/@zoe.languages
 
 ### 美食
 觅食Meetfood https://www.youtube.com/@MeetFoodTour
