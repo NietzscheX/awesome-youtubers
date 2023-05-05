@@ -144,13 +144,15 @@ GEM鄧紫棋 https://www.youtube.com/@gem0816
 
 中国鬼怪排行榜 https://www.youtube.com/@user-xi4jp5tz6w
 
-### 语言学习
+### 语言学习/效率
 
 Teacher Mike 麦克老师 https://www.youtube.com/@maikelaoshi
 
 Peggy Fo Show - https://www.youtube.com/@peggyfoshow
 
 Zoe.languages - https://www.youtube.com/@zoe.languages
+
+ElenaLin_青青 - https://www.youtube.com/@ElenaLin
 
 ### 美食
 觅食Meetfood https://www.youtube.com/@MeetFoodTour
