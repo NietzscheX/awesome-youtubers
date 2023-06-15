@@ -166,6 +166,10 @@ Zoe.languages - https://www.youtube.com/@zoe.languages
 
 ElenaLin_青青 - https://www.youtube.com/@ElenaLin
 
+Chen Lily https://www.youtube.com/@ChenLily
+
+Chinese with Jessie https://www.youtube.com/@ChinesewithJessie
+
 ### 美食
 觅食Meetfood https://www.youtube.com/@MeetFoodTour
 
