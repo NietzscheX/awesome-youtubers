@@ -78,6 +78,10 @@ Thomas阿福 https://www.youtube.com/@ThomasAfu
 
 攝徒日記Fun TV https://www.youtube.com/@funtv8964 
 
+白癡公主 https://www.youtube.com/@ATienDai
+
+Stan from Poland 斯坦-波蘭ê台灣囡仔 https://www.youtube.com/@StanfromPoland
+
 #### 悉尼
 
 悉尼奶爸 Sydney DaDDy https://www.youtube.com/@SydneyDaddy1 
@@ -91,6 +95,12 @@ Thomas阿福 https://www.youtube.com/@ThomasAfu
 薇羽看世間 https://www.youtube.com/@weiyuksj
 
 #### 美国
+
+HackBear 泰瑞 https://www.youtube.com/@hackbearterry 
+
+常常99 - 99ai 🤖 Jojo投资创业 https://www.youtube.com/@jojojoy 
+
+Torres Pit托哥 https://www.youtube.com/@torrespit666
 
 Mike是麦克 https://www.youtube.com/@mike1111 
 
@@ -108,8 +118,6 @@ Sunnyyy Travel https://www.youtube.com/@SunnyyyTravel
 
 She's Danni https://www.youtube.com/@ShesDanni 
 
-上海人家在美国 https://www.youtube.com/@SHfamilyinUS 
-
 #### 日本
 
 李小牧看日本-歌舞伎町案內人 https://www.youtube.com/@leekomaki 
@@ -121,6 +129,10 @@ She's Danni https://www.youtube.com/@ShesDanni
 三原JAPAN Sanyuan_JAPAN https://www.youtube.com/@SanyuanJAPAN2015 
 
 日本太太PangMama / 加藤彩子 https://www.youtube.com/@pangmama57 
+
+黑哥在日本 https://www.youtube.com/@user-bl4df9ri6z
+
+Gavin Zhou https://www.youtube.com/@gavinzhou
 
 ### 歌手
 
