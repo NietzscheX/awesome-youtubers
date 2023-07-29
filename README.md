@@ -17,8 +17,6 @@
 #### 美国
 Mike是麦克 - https://www.youtube.com/@mike1111 
 
-移民访谈录 - https://www.youtube.com/@xusiduo
-
 洛奇Rocky - https://www.youtube.com/@Rocky1108
 
 ### 话题评论类
