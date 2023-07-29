@@ -7,6 +7,28 @@
 
 华语油管主主要来自于中国大陆、台湾、香港、马来西亚，也有中文很溜的老外。
 
+### 移民话题
+
+#### 加拿大
+56BelowTV 零下56 - https://www.youtube.com/@56BelowTV 
+
+刀刀-canada - https://www.youtube.com/@daodao-ca 
+
+#### 美国
+Mike是麦克 - https://www.youtube.com/@mike1111 
+
+移民访谈录 - https://www.youtube.com/@xusiduo
+
+洛奇Rocky - https://www.youtube.com/@Rocky1108
+
+### 话题评论类
+
+關鍵時刻 https://www.youtube.com/@ebcCTime 
+
+百靈果 - https://www.youtube.com/@bailingguo 
+
+BBKNetwork - https://www.youtube.com/@BBKNetwork
+
 ### 时政
 
 万维TV https://www.youtube.com/@wanweitv
@@ -27,11 +49,6 @@
 
 老北京茶館 - 時政相聲 https://www.youtube.com/@BeijingTeahouse
 
-### 话题评论类
-
-關鍵時刻 https://www.youtube.com/@ebcCTime 
-
-BBKNetwork - https://www.youtube.com/@BBKNetwork
 
 ### 科普/历史
 自说自话的总裁 https://www.youtube.com/@STBoss
@@ -62,7 +79,7 @@ Cheap 最真实的历史 - https://www.youtube.com/@cheapaoe
 
 常常99 - 99ai Jojo投资创业 https://www.youtube.com/@jojojoy 
 
-### 生活移民
+### 知名油管主
 
 Jixian Wang 我是王吉贤 https://www.youtube.com/@hellojixian 
 
@@ -217,8 +234,6 @@ Chinese with Jessie https://www.youtube.com/@ChinesewithJessie
 魔女嘉尔 https://www.youtube.com/@Jiaer01
 
 ### 脱口秀/综艺
-
-百靈果 News https://www.youtube.com/@bailingguo 
 
 正妹老司機 https://www.youtube.com/@beautydriver
 
