@@ -11,8 +11,6 @@
 
 万维TV https://www.youtube.com/@wanweitv
 
-關鍵時刻 https://www.youtube.com/@ebcCTime 
-
 新聞看點 - 李沐陽 https://www.youtube.com/@MuYangShow
 
 新聞最嘲點 - Mr.姜光宇 https://www.youtube.com/@MrFunnyNewsJGY 
@@ -20,8 +18,6 @@
 王剑每日观察Kim's Observation  https://www.youtube.com/@wongkim728
 
 小翠時政財經 https://www.youtube.com/@cui_news
-
-真觀點 https://www.youtube.com/@zhenguandian 
 
 财经冷眼 https://www.youtube.com/@caijinglengyan 
 
@@ -32,6 +28,8 @@
 老北京茶館 - 時政相聲 https://www.youtube.com/@BeijingTeahouse
 
 ### 话题评论类
+
+關鍵時刻 https://www.youtube.com/@ebcCTime 
 
 BBKNetwork - https://www.youtube.com/@BBKNetwork
 
@@ -70,15 +68,9 @@ Jixian Wang 我是王吉贤 https://www.youtube.com/@hellojixian
 
 stone记 - https://www.youtube.com/@stone_ji
 
-錫蘭Ceylan - https://www.youtube.com/@xilanceylan
-
-#### 德国
-
-Thomas阿福 https://www.youtube.com/@ThomasAfu
-
-老雷 德国自干五 https://www.youtube.com/watch?v=YEz402uAPes
-
 #### 台湾
+
+錫蘭Ceylan - https://www.youtube.com/@xilanceylan
 
 波特王好帥 https://www.youtube.com/@Realpotterking
 
@@ -110,9 +102,17 @@ Stephy Yiwen - https://www.youtube.com/@Stephyyiwen0505
 
 Hishiko woo 吴佩其 - https://www.youtube.com/@HishikoTV
 
-#### 悉尼
+#### 澳大利亚
 
 悉尼奶爸 Sydney DaDDy https://www.youtube.com/@SydneyDaddy1 
+
+真觀點 https://www.youtube.com/@zhenguandian 
+
+#### 德国
+
+Thomas阿福 https://www.youtube.com/@ThomasAfu
+
+老雷 德国自干五 https://www.youtube.com/watch?v=YEz402uAPes
 
 #### 加拿大
 
