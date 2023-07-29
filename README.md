@@ -124,6 +124,8 @@ Hishiko woo 吴佩其 - https://www.youtube.com/@HishikoTV
 
 #### 美国
 
+莫彩曦Hailey https://www.youtube.com/@haileymocaixi
+
 HackBear 泰瑞 https://www.youtube.com/@hackbearterry 
 
 Torres Pit托哥 https://www.youtube.com/@torrespit666
