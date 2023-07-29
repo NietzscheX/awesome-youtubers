@@ -124,15 +124,17 @@ Hishiko woo 吴佩其 - https://www.youtube.com/@HishikoTV
 
 #### 美国
 
-莫彩曦Hailey https://www.youtube.com/@haileymocaixi
+莫彩曦 Hailey - https://www.youtube.com/@haileymocaixi
 
 HackBear 泰瑞 https://www.youtube.com/@hackbearterry 
 
 Torres Pit托哥 https://www.youtube.com/@torrespit666
 
-Mike是麦克 https://www.youtube.com/@mike1111 
+翠西Tracey - https://www.youtube.com/@Tracey
 
-移民访谈录 https://www.youtube.com/@xusiduo
+Mike是麦克 - https://www.youtube.com/@mike1111 
+
+移民访谈录 - https://www.youtube.com/@xusiduo
 
 Bruce房车走遍美国 https://www.youtube.com/@liangluejia123 
 
