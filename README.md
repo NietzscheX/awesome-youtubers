@@ -29,6 +29,12 @@
 
 美国之音中文网 https://www.youtube.com/@voachinese
 
+老北京茶館 - 時政相聲 https://www.youtube.com/@BeijingTeahouse
+
+### 话题评论类
+
+BBKNetwork - https://www.youtube.com/@BBKNetwork
+
 ### 科普/历史
 自说自话的总裁 https://www.youtube.com/@STBoss
 
@@ -56,11 +62,11 @@ Cheap 最真实的历史 - https://www.youtube.com/@cheapaoe
 
 小翠時政財經 https://www.youtube.com/@cui_news 
 
+常常99 - 99ai Jojo投资创业 https://www.youtube.com/@jojojoy 
+
 ### 生活移民
 
 Jixian Wang 我是王吉贤 https://www.youtube.com/@hellojixian 
-
-Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505 
 
 stone记 - https://www.youtube.com/@stone_ji
 
@@ -82,6 +88,28 @@ Thomas阿福 https://www.youtube.com/@ThomasAfu
 
 Stan from Poland 斯坦-波蘭ê台灣囡仔 https://www.youtube.com/@StanfromPoland
 
+#### 马来西亚
+
+Bryson Lew 刘铠翔 - https://www.youtube.com/@bryson_lew
+
+詩敏 XiMing - https://www.youtube.com/@XiMiNGG
+
+Soya手癢計劃 - https://www.youtube.com/@soyaplan
+
+一隻阿圓 I am CIRCLE - https://www.youtube.com/@NANACIAOCIAO 
+
+Jovane PJY - https://www.youtube.com/@JovanePhang
+
+Scarlett 叹美食 - https://www.youtube.com/@scarlett-ding
+
+Hello Miya - https://www.youtube.com/@HelloMiya
+
+乔治妈妈的日常 - https://www.youtube.com/@Georgemamavlog
+
+Stephy Yiwen - https://www.youtube.com/@Stephyyiwen0505 
+
+Hishiko woo 吴佩其 - https://www.youtube.com/@HishikoTV
+
 #### 悉尼
 
 悉尼奶爸 Sydney DaDDy https://www.youtube.com/@SydneyDaddy1 
@@ -97,8 +125,6 @@ Stan from Poland 斯坦-波蘭ê台灣囡仔 https://www.youtube.com/@StanfromPo
 #### 美国
 
 HackBear 泰瑞 https://www.youtube.com/@hackbearterry 
-
-常常99 - 99ai 🤖 Jojo投资创业 https://www.youtube.com/@jojojoy 
 
 Torres Pit托哥 https://www.youtube.com/@torrespit666
 
@@ -140,6 +166,8 @@ Gavin Zhou https://www.youtube.com/@gavinzhou
 
 JJ Lin林俊傑 https://www.youtube.com/@jjlin/
 
+GEM鄧紫棋 https://www.youtube.com/@gem0816
+
 Priscilla Abby 蔡恩雨 - https://www.youtube.com/@PriscillaAbby
 
 Namewee 黄明志 https://www.youtube.com/channel/UCFUtqTcgJgRnmZ3tMU6P74Q 
@@ -148,9 +176,7 @@ Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505
 
 Joyce Chu 四葉草 https://www.youtube.com/@theCLOVERJOYCE
 
-GEM鄧紫棋 https://www.youtube.com/@gem0816
-
-### 宗教
+### 宗教灵异
 
 無有淺談 https://www.youtube.com/@supu929 
 
@@ -171,6 +197,7 @@ Chen Lily https://www.youtube.com/@ChenLily
 Chinese with Jessie https://www.youtube.com/@ChinesewithJessie
 
 ### 美食
+
 觅食Meetfood https://www.youtube.com/@MeetFoodTour
 
 ### 电影快看
