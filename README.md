@@ -19,13 +19,15 @@ Mike是麦克 - https://www.youtube.com/@mike1111
 
 洛奇Rocky - https://www.youtube.com/@Rocky1108
 
-### 话题评论类
+### 话题访谈类
 
 關鍵時刻 https://www.youtube.com/@ebcCTime 
 
 百靈果 - https://www.youtube.com/@bailingguo 
 
 BBKNetwork - https://www.youtube.com/@BBKNetwork
+
+驚奇玩起來 AmazingTalker Show - https://www.youtube.com/@amazingtalkershow
 
 ### 时政
 
