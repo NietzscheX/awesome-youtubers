@@ -191,11 +191,13 @@ GEM鄧紫棋 https://www.youtube.com/@gem0816
 
 Priscilla Abby 蔡恩雨 - https://www.youtube.com/@PriscillaAbby
 
-Namewee 黄明志 https://www.youtube.com/channel/UCFUtqTcgJgRnmZ3tMU6P74Q 
+Namewee 黄明志 - https://www.youtube.com/channel/UCFUtqTcgJgRnmZ3tMU6P74Q 
 
-Stephy Yiwen https://www.youtube.com/@Stephyyiwen0505
+Stephy Yiwen - https://www.youtube.com/@Stephyyiwen0505
 
-Joyce Chu 四葉草 https://www.youtube.com/@theCLOVERJOYCE
+Joyce Chu 四葉草 - https://www.youtube.com/@theCLOVERJOYCE
+
+Kimberley Chen 陈芳语 - https://www.youtube.com/channel/UC3ePO05Z8DUw-w9F59p5Mjg
 
 ### 宗教灵异
 
