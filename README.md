@@ -1,4 +1,4 @@
-## Youtube简介
+![image](https://github.com/run2763/awesome-youtubers/assets/130183779/b91372a4-86ab-475d-9c50-3818530d4525)## Youtube简介
 
 美国Google旗下的影片分享网站，是目前全球最大的影片搜寻和分享平台，允许使用者上传、观看、分享及评论影片。它也是国内网站竞相抄袭的对象，比如youku、biblili都希望成为中国的youtube。
 
@@ -121,9 +121,11 @@ Hishiko woo 吴佩其 - https://www.youtube.com/@HishikoTV
 
 #### 澳大利亚
 
-悉尼奶爸 Sydney DaDDy https://www.youtube.com/@SydneyDaddy1 
+悉尼奶爸 Sydney DaDDy - https://www.youtube.com/@SydneyDaddy1 
 
-真觀點 https://www.youtube.com/@zhenguandian 
+真觀點 - https://www.youtube.com/@zhenguandian 
+
+兩岸夫妻的斜槓生活 - https://www.youtube.com/@wawalulu
 
 #### 德国
 
@@ -194,6 +196,8 @@ Priscilla Abby 蔡恩雨 - https://www.youtube.com/@PriscillaAbby
 Namewee 黄明志 - https://www.youtube.com/channel/UCFUtqTcgJgRnmZ3tMU6P74Q 
 
 Stephy Yiwen - https://www.youtube.com/@Stephyyiwen0505
+
+Danny_AhBoy 许佳麟 - https://www.youtube.com/@Danny_ahboy
 
 Joyce Chu 四葉草 - https://www.youtube.com/@theCLOVERJOYCE
 
