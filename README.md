@@ -119,6 +119,8 @@ Stephy Yiwen - https://www.youtube.com/@Stephyyiwen0505
 
 Hishiko woo 吴佩其 - https://www.youtube.com/@HishikoTV
 
+路易思拍廢片 - https://www.youtube.com/@luiswong90
+
 #### 澳大利亚
 
 悉尼奶爸 Sydney DaDDy - https://www.youtube.com/@SydneyDaddy1 
@@ -200,6 +202,8 @@ Stephy Yiwen - https://www.youtube.com/@Stephyyiwen0505
 Danny_AhBoy 许佳麟 - https://www.youtube.com/@Danny_ahboy
 
 Joyce Chu 四葉草 - https://www.youtube.com/@theCLOVERJOYCE
+
+朱浩仁Haoren - https://www.youtube.com/@haorened
 
 Kimberley Chen 陈芳语 - https://www.youtube.com/channel/UC3ePO05Z8DUw-w9F59p5Mjg
 
