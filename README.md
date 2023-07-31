@@ -1,4 +1,4 @@
-![image](https://github.com/run2763/awesome-youtubers/assets/130183779/b91372a4-86ab-475d-9c50-3818530d4525)## Youtube简介
+## Youtube简介
 
 美国Google旗下的影片分享网站，是目前全球最大的影片搜寻和分享平台，允许使用者上传、观看、分享及评论影片。它也是国内网站竞相抄袭的对象，比如youku、biblili都希望成为中国的youtube。
 
