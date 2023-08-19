@@ -219,9 +219,11 @@ Kimberley Chen 陈芳语 - https://www.youtube.com/channel/UC3ePO05Z8DUw-w9F59p5
 
 ### 宗教灵异
 
-無有淺談 https://www.youtube.com/@supu929 
+卓Cho - https://www.youtube.com/@alicechooooo 
 
-中国鬼怪排行榜 https://www.youtube.com/@user-xi4jp5tz6w
+無有淺談 - https://www.youtube.com/@supu929 
+
+中国鬼怪排行榜 - https://www.youtube.com/@user-xi4jp5tz6w
 
 ### 语言学习/效率
 
