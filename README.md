@@ -89,11 +89,13 @@ stone记 - https://www.youtube.com/@stone_ji
 
 錫蘭Ceylan - https://www.youtube.com/@xilanceylan
 
-波特王好帥 https://www.youtube.com/@Realpotterking
+波特王好帥 - https://www.youtube.com/@Realpotterking
 
-攝徒日記Fun TV https://www.youtube.com/@funtv8964 
+攝徒日記Fun TV - https://www.youtube.com/@funtv8964 
 
-白癡公主 https://www.youtube.com/@ATienDai
+白癡公主 - https://www.youtube.com/@ATienDai
+
+卓Cho - https://www.youtube.com/@alicechooooo 
 
 Stan from Poland 斯坦-波蘭ê台灣囡仔 https://www.youtube.com/@StanfromPoland
 
@@ -169,6 +171,12 @@ She's Danni - https://www.youtube.com/@ShesDanni
 
 Lillian Chiu - https://www.youtube.com/@LillianChiu101
 
+coco xu - https://www.youtube.com/@cocoxu
+
+峨眉师姐在纽约EMei NewYork - https://www.youtube.com/@emeinewyork
+
+关于桑尼 About Sunny - https://www.youtube.com/@Aboutsunnyyy
+
 #### 日本
 
 李小牧看日本-歌舞伎町案內人 https://www.youtube.com/@leekomaki 
@@ -184,6 +192,8 @@ Lillian Chiu - https://www.youtube.com/@LillianChiu101
 黑哥在日本 https://www.youtube.com/@user-bl4df9ri6z
 
 Gavin Zhou https://www.youtube.com/@gavinzhou
+
+Leonard - https://www.youtube.com/@leonard2834
 
 ### 歌手
 
@@ -233,15 +243,19 @@ Chinese with Jessie https://www.youtube.com/@ChinesewithJessie
 
 ### 电影快看
 
-科幻FANS https://www.youtube.com/@kehuanbuma 
+科幻FANS - https://www.youtube.com/@kehuanbuma 
 
-瞎鸡二看 https://www.youtube.com/@xiaji2kan 
+瞎鸡二看 - https://www.youtube.com/@xiaji2kan 
 
-穷电影 https://www.youtube.com/@qiongdianying
+穷电影 - https://www.youtube.com/@qiongdianying
 
-超粒方 https://www.youtube.com/@tessereq
+超粒方 - https://www.youtube.com/@tessereq
 
-魔女嘉尔 https://www.youtube.com/@Jiaer01
+魔女嘉尔 - https://www.youtube.com/@Jiaer01
+
+来呀官人 - https://www.youtube.com/@laiyaguanren 
+
+越哥说电影 - https://www.youtube.com/@yuegemovie
 
 ### 脱口秀/综艺
 
